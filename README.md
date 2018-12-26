@@ -1,1 +1,1 @@
-# finance
+ÑS50 2018 Andrieiev Ihor
